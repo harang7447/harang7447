@@ -1,6 +1,6 @@
 Hello, my name is Harang.
 
-I'm 12years old.
+I'm 12 years old.
 
 I born is korea and I live in Thailand.
 
