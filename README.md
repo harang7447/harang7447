@@ -2,7 +2,7 @@ Hello, my name is Harang.
 
 I'm 12 years old.
 
-I born is korea and I live in Thailand.
+I born is korea in 2010 and I live in Thailand.
 
 I usually coding in my free time.
 
